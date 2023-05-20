@@ -1,1 +1,1 @@
-# Analysis on the use of addictive substances to psychological factors 
+# Analysis on the use of addictive substances in relation to psychological factors 
